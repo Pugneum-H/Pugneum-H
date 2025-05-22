@@ -8,4 +8,4 @@
 > [!NOTE]
 > Most projects are **u s e l e s s** but quite interesting.
 
- 🌊`All for now`🌊
+ 🌊`All for now.`🌊
